@@ -5,3 +5,5 @@
 ![screenshot015](https://user-images.githubusercontent.com/97003296/230757014-43339957-83d2-430c-bdfd-11ae5f245ca7.jpg)
 ### [- Ryanstolefromkevin](https://mega.nz/file/1PoBQboa#d8IQyEpPejEgmVHBRilpC_lRKiXV2DQ3FH2q2JRRcvA)
 ![screenshot017](https://user-images.githubusercontent.com/97003296/230757319-be88517e-31ca-4973-b2d7-07f6ce760c06.jpg)
+### [tekkito](https://cdn.discordapp.com/attachments/1075170599355297792/1094505739873161216/tekkito2.osk)
+![screenshot019](https://user-images.githubusercontent.com/97003296/230757789-f3ebffb3-751b-44e5-a4b1-2556f52399aa.jpg)
