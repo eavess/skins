@@ -1,4 +1,5 @@
 # skins
+# I update this semi-regularly but if there's a skin you see me using on stream that isn't here message me on discord and I'll give it to u Eves#6574
 ### [yaong kimika](https://cdn.discordapp.com/attachments/1075170599355297792/1107868663672995840/yaong_kimika.osk)
 ![screenshot048](https://github.com/eavess/skins/assets/97003296/f7f5526a-077f-4af9-9c52-23924f36c129)
 ### [vaxei+tekkito](https://cdn.discordapp.com/attachments/1075170599355297792/1105197246619865088/vaxeitekkito.osk)
