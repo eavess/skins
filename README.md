@@ -1,5 +1,5 @@
 # skins
-# I update this semi-regularly but if there's a skin you see me using on stream that isn't here message me on discord and I'll give it to u Eves#6574 (unless I don't have it in which case I'm sorry)
+# I update this semi-regularly but if there's a skin you see me using on stream that isn't here message me on discord and I'll give it to u Eaves#6574 (unless I don't have it in which case I'm sorry)
 ### [tekkipanowski edit](https://cdn.discordapp.com/attachments/1075170599355297792/1094687013678104747/tekkipanowski-edit.osk)
 ![screenshot024](https://user-images.githubusercontent.com/97003296/230789603-a2fd7080-4df0-4791-ba2e-1bceb8d094c8.jpg)
 ### [tekkito](https://cdn.discordapp.com/attachments/1075170599355297792/1094505739873161216/tekkito2.osk)
