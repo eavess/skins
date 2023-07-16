@@ -8,3 +8,5 @@
 ![screenshot085](https://github.com/eavess/skins/assets/97003296/c921a2a2-d5dd-4a31-a4b5-470d5c6e3b28)
 ### [aristia](https://cdn.discordapp.com/attachments/1075170599355297792/1110970217129050153/aristia.osk)
 ![screenshot086](https://github.com/eavess/skins/assets/97003296/f5af398f-57ff-440a-aac0-8cdb4c88e559)
+### [eaves aristia](https://cdn.discordapp.com/attachments/1075170599355297792/1130229489838862436/--_eaves.osk)
+![screenshot075](https://github.com/eavess/skins/assets/97003296/d833219a-ff7d-4911-9da8-c99045a73e18)
